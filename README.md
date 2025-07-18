@@ -45,7 +45,7 @@
 ## 🔗 Let's Connect
 
 [![LinkedIn](https://www.linkedin.com/in/namrata-mandloi-00493a235)
-📧 Email: **namratamandloi2211@example.com**
+📧 Email: **namratamandloi2211@gmail.com**
 
 ---
 
